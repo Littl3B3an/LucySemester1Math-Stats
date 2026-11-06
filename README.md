@@ -1,1 +1,0 @@
-# LucySemester1Math-Stats
